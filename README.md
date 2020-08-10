@@ -1,1 +1,3 @@
 # mind-virus
+
+The doubt makes me sick. I'd rather just give it away or give it back to you. It's like a mind virus. Nothing is worth not being sure whether the two of you trust me. It's parasitic. It's literally soul death and I'm not about it. I care about building and I care about my friends and family. I care about you two. I care about the work we did. I care about the work we want to do. This is a pointless destruction of trust, relationships, time and mind. Let the world eat itself up if this is how it thinks people should relate to each other. This is not how I want to live. This is not what the good life looks like. 
